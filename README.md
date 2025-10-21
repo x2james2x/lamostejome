@@ -1,0 +1,2 @@
+# lamostejome
+personal autobiography
